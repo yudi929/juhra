@@ -1,0 +1,2 @@
+# juhra
+Menjual kacang 
